@@ -1,1 +1,12 @@
-# Motion-Cut-Task4
+Name :BODDU DURGA PRASAD 
+
+Company: MotionCut 
+
+Internship Details: 
+
+● Position: Web Development Intern 
+
+● Duration: 2 Months
+
+● Start Date: 5th January 2025
+
